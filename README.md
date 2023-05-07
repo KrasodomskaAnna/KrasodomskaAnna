@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Nice to see you. Hope enjoy and stay at my profile!
+Nice to see you. Hope enjoy and stay on my profile!
 
 
 👩‍🎓 <b>I’m currently learning</b>
