@@ -9,7 +9,7 @@ Nice to see you. Hope enjoy and stay on my profile!
 * 👩‍💻 creating apps (on MacOS to!)
 
 
-🩷 <b>My favourites</b>
+❤️ <b>My favourites</b>
 * 📱 React
 * 🎛️ C/C++ (also for arduino)
 * 🐍 Python
