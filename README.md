@@ -4,8 +4,8 @@ Nice to see you. Hope enjoy and stay on my profile!
 
 
 👩‍🎓 <b>I’m currently learning</b>
-* 🧬 machine learning
-* 🧠 algorithms 
+* 🎯 software engineering
+* 🎲 Unity games
 * 👩‍💻 creating apps (on MacOS to!)
 
 
